@@ -1,0 +1,2 @@
+- [The magnetic bypass: a surprising element](https://youtu.be/q4uQFt9Bm6g)
+- [Capacitor charging riddle](https://youtu.be/WzFPXjLRCpQ)
